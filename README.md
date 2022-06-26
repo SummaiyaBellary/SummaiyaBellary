@@ -1,1 +1,8 @@
-# SummaiyaSB
+- 👋 Hey Universe, I'm Summaiya. Front-End Developer/ Cyber-Security/ Hacking
+- 🔭 I’m currently working on my Personal Portfolio.☺️
+- 🌱 I’m pursuing B.Tech in Computer Science Engineering.
+- 👯 I’m looking to collaborate on Real Time Projects.🧑‍💻
+- 📫 How to reach me: *samiyasami508@gmail.com*
+- 📫 How to reach me: *summaiyabellary@gmail.com*
+- 😄 Pronouns: she/Her
+- ⚡ Fun fact: I love travelling the World!!
